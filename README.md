@@ -1,0 +1,2 @@
+# Minyat-r-sekizli-fiestaya
+.
